@@ -21,10 +21,10 @@ $\color{#777777}\text{THIS IS TESTING BELOW ME}$
 CALL ME BY ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY NO IT/ITSㅤㅤMALAYSIANㅤㅤSHARK AZURGIRLㅤㅤAUTOROSEㅤㅤFICTOROSE + FICTOPOLYㅤㅤOBJECTUMㅤㅤMASC/NEUTRAL TERMS PREFERREDㅤㅤALTHUMAN/OTHERKINㅤㅤADULT SO BELOW 15 PLS DNIUCFㅤㅤBLOCK + HIDE FREELY
 
 <p align="center">
-  <img src="https://files.catbox.moe/nc33ch.gif" width= "50"> ㅤㅤ
-  <img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="50" /> ㅤㅤ 
-  <img src="https://i.postimg.cc/VSyVJMZz/red103.gif" width="50" /> ㅤㅤ
-  <img src="https://i.postimg.cc/WFchz2kd/mo142.png"  width= "50">
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/01/tumblr_d3dbcaea915e84b433723d2ce7f04fed_52763910_75.webp" width= "40"> ㅤㅤ
+  <img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="40" /> ㅤㅤ 
+  <img src="https://i.postimg.cc/Fss86gh9/IMG-2163.gif" width="40" /> ㅤㅤ
+  <img src="https://64.media.tumblr.com/38a22bbe546c3161422661f64d5bea54/0e82760fabefe51a-01/s75x75_c1/4591d42bd8ceaec0e19d9655319055e5b0ac99ba.gif"  width= "40">
 </p>
 
 </details>
