@@ -6,7 +6,7 @@
 </a>
 
 <p align="center">
-  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/08/jqxtHK6.gif" height="" width="400">
+  <img src="https://i.ibb.co/QjdzTKp5/tumblr.png" height="" width="400">
 </p> 
 
 <div align="center">
@@ -15,7 +15,7 @@
 ㅤㅤ
 <p align="center">
   <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono1" width= "100">
-  <img src="https://files.catbox.moe/92xe7u.gif" width= "166">
+  <img src="https://files.catbox.moe/rytx5f.webp" width= "140">
 </p>
 
 CALL ME BY ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY NO IT/ITSㅤㅤMALAYSIANㅤㅤALTHUMAN SHARKKIN AZURGIRLㅤㅤAUTOROSEㅤㅤFICTOROSE + FICTOPOLYㅤㅤOBJECTUMㅤㅤMASC/NEUTRAL TERMS PREFERREDㅤㅤADULT SO BELOW 15 PLS DNIUCFㅤㅤBLOCK + HIDE FREELY
@@ -77,7 +77,7 @@ C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCOVERUF + DO NOT SEND FRIEND/PARTY 
 </div>
 
 <p align="center">
-  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/08/jqxtHK6.gif" height="" width="400">
+  <img src="https://64.media.tumblr.com/2d7b083eacda60030f8f9ffd71bf3fbd/88b43dda1513eab4-c8/s250x400/0f2a7b0dc2de978ce4a76ece1acaa4f3a848684a.pnj" height="" width="400">
 </p> 
 
 <br clear="left" />
