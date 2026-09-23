@@ -15,7 +15,7 @@
 ㅤㅤ
 <p align="center">
   <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono1" width= "100">
-  <img src="https://files.catbox.moe/rytx5f.webp" width= "140">
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono15" width= "150">
 </p>
 
 CALL ME BY ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY NO IT/ITSㅤㅤMALAYSIANㅤㅤALTHUMAN SHARKKIN AZURGIRLㅤㅤAUTOROSEㅤㅤFICTOROSE + FICTOPOLYㅤㅤOBJECTUMㅤㅤMASC/NEUTRAL TERMS PREFERREDㅤㅤADULT SO BELOW 15 PLS DNIUCFㅤㅤBLOCK + HIDE FREELY
@@ -82,6 +82,9 @@ C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCOVERUF + DO NOT SEND FRIEND/PARTY 
 
 <br clear="left" />
 
+```ㅤㅤ
+ㅤㅤ
+```
 
 <p align="center">
   <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" height="" width="900">
