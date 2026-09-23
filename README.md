@@ -1,11 +1,12 @@
-$\color{#dc143c}\text{THIS IS TESTING BELOW ME}$
-
+<p align="center">
+  <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" height="" width="900">
+</p> 
 
   <img align="left" width="400" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
 
 <p align="center">
-  <img src="https://i.postimg.cc/T1JZdRvt/Untitled15-20240905155823.png" height="" width="500">
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/08/jqxtHK6.gif" height="" width="400">
 </p> 
 
 <div align="center">
@@ -29,6 +30,7 @@ CALL ME BY ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY NO IT/ITSㅤㅤMALAYSIAN
 </details>
 </div>
 
+ㅤㅤ
 
 <div align="center">
 <details>
@@ -51,9 +53,11 @@ VERY BLUNT AND ROUGH VOCABULARYㅤㅤFREQUENT WEIRD/FLIRT/EXPLICIT JOKESㅤㅤAM
 </details>
 </div>
 
+ㅤㅤ
+
 <div align="center">
 <details>
-<summary> $\color{#675f62}\text{⟢ PONYTOWN}$ </summary>
+<summary> $\color{#474849}\text{⟢ PONYTOWN}$ </summary>
 ㅤㅤ
 <p align="center">
   <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono74" width= "120">
@@ -72,5 +76,13 @@ C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCOVERUF + DO NOT SEND FRIEND/PARTY 
 </details>
 </div>
 
+<p align="center">
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/08/jqxtHK6.gif" height="" width="400">
+</p> 
+
 <br clear="left" />
 
+
+<p align="center">
+  <img src="https://i.postimg.cc/XYLv8wfS/Untitled15-20240903153632.png" height="" width="900">
+</p> 
