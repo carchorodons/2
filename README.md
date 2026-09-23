@@ -1,7 +1,6 @@
-$\color{#777777}\text{THIS IS TESTING BELOW ME}$
+$\color{#dc143c}\text{THIS IS TESTING BELOW ME}$
 
 
-<a href="https://github.com/pizzagamebeta">
   <img align="left" width="400" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
 
@@ -11,14 +10,14 @@ $\color{#777777}\text{THIS IS TESTING BELOW ME}$
 
 <div align="center">
 <details>
-<summary> PROFILE </summary>
+<summary> ⟢ PROFILE </summary>
 ㅤㅤ
 <p align="center">
   <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono1" width= "100">
-  <img src="https://files.catbox.moe/92xe7u.gif" width= "165">
+  <img src="https://files.catbox.moe/92xe7u.gif" width= "166">
 </p>
 
-CALL ME BY ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY NO IT/ITSㅤㅤMALAYSIANㅤㅤSHARK AZURGIRLㅤㅤAUTOROSEㅤㅤFICTOROSE + FICTOPOLYㅤㅤOBJECTUMㅤㅤMASC/NEUTRAL TERMS PREFERREDㅤㅤALTHUMAN/OTHERKINㅤㅤADULT SO BELOW 15 PLS DNIUCFㅤㅤBLOCK + HIDE FREELY
+CALL ME BY ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY NO IT/ITSㅤㅤMALAYSIANㅤㅤALTHUMAN SHARKKIN AZURGIRLㅤㅤAUTOROSEㅤㅤFICTOROSE + FICTOPOLYㅤㅤOBJECTUMㅤㅤMASC/NEUTRAL TERMS PREFERREDㅤㅤADULT SO BELOW 15 PLS DNIUCFㅤㅤBLOCK + HIDE FREELY
 
 <p align="center">
   <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/01/tumblr_d3dbcaea915e84b433723d2ce7f04fed_52763910_75.webp" width= "40"> ㅤㅤ
@@ -33,27 +32,43 @@ CALL ME BY ROOK OR SILOㅤㅤMY PRONOUNCE? HE/SHARK/ANY NO IT/ITSㅤㅤMALAYSIAN
 
 <div align="center">
 <details>
-<summary> BYI </summary>
-
+<summary> $\color{#8d6363}\text{⟢ BYI}$ </summary>
+ㅤㅤ
 <p align="center">
-  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono1" width= "100">
-  <img src="https://i.postimg.cc/hjnX8tMs/gray.gif" width= "100">
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/colorful/multi28" width= "148">
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono87" width= "120">
 </p>
   
-CAN BE VERY BLUNT AND ROUGH WITH MY LANGUANGEㅤㅤFREQUENT WEIRD/FLIRT/EXPLICIT JOKES TELL ME OFF IF THIS ISNT YOUR THINGㅤㅤAMBIVERTED + SOCIAL ANXIETYㅤㅤPRONE TO AGGRESSIVE BEHAVIOR/ANGER TENDENCIES AND RAPID MOOD CHANGESㅤㅤHAVE A HARD TIME TRUSTING PEOPLE BUT I AM NEVER MEAN OR RUDE ON PURPOSE SO IM SORRY IF I LOOK OR SOUND CONDESCENDINGㅤㅤTONETAGS OPTIONALㅤㅤEXTREMELY HYPER AFTER WERE CLOSEㅤㅤVERY CLINGY AND AFFECTIONATE SO BE WARNEDㅤㅤPLEASE DON'T ASSOCIATE ME WITH ANY DRAMAㅤㅤCAN BE FORGETTABLE ABOUT THINGS EVEN NAMES
+VERY BLUNT AND ROUGH VOCABULARYㅤㅤFREQUENT WEIRD/FLIRT/EXPLICIT JOKESㅤㅤAMBIVERTED + SOCIAL ANXIETYㅤㅤPRONE TO AGGRESSIVE BEHAVIOR/ANGER TENDENCIES AND RAPID MOOD CHANGESㅤㅤHAVE A HARD TIME GETTING ALONGㅤㅤEXTREMELY HYPER AFTER WERE CLOSEㅤㅤVERY CLINGY AND AFFECTIONATE BE WARNEDㅤㅤCAN BE FORGETTABLE ABOUT THINGSㅤㅤCAN GET DISTRACTED EASILY
+
+<p align="center">
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/04/tumblr_989e97a17d7b6979e2b35561639ea5d4_a04832c6_75.webp" width= "40"> ㅤㅤ
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/24/h1za3h.gif" width="40" /> ㅤㅤ 
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/pixels/red%20pixel/red133" width="40" /> ㅤㅤ
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/09/q94ohm.gif"  width= "40">
+</p>
+
 </details>
 </div>
 
 <div align="center">
 <details>
-<summary> PONY TOWN </summary>
-
+<summary> $\color{#675f62}\text{⟢ PONYTOWN}$ </summary>
+ㅤㅤ
 <p align="center">
-  <img src="https://i.postimg.cc/1tWygmdX/gray.gif" width= "100">
-  <img src="https://i.postimg.cc/hjnX8tMs/gray.gif" width= "100">
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono74" width= "120">
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/buttons/monochromatic/mono80" width= "108">
 </p>
   
-C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCOVERUF + DO NOT SEND FRIEND/PARTY REQ UNLESS I KNOW YOUㅤㅤNEARLY ALL THE TIME OFFTAB SO PLEASE W2IㅤㅤHANG AROUND MAINLY AT DOCKS/WITH MOOTIESㅤㅤPLEASE DONT TAKE INSPO OF MY SKINS UNLESS IVE GIVEN CLEAR PERMISSIONㅤㅤPREFER TO TALK IN WHISPER/PARTY CHATS
+C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCOVERUF + DO NOT SEND FRIEND/PARTY REQ UNLESS I KNOW YOUㅤㅤNEARLY ALL THE TIME OFFTAB PLEASE W2IㅤㅤHANG AROUND MAINLY AT DOCKS/WITH MOOTIESㅤㅤPLEASE DONT TAKE INSPO OF MY SKINS UNLESS GIVEN CLEAR PERMISSIONㅤㅤPREFER TO TALK IN WHISPER/PARTY CHATS
+
+<p align="center">
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/tumblr_0eab45c9b28ec8b8646a99cdae0dafac_d391b41c_75.webp" width= "40"> ㅤㅤ
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/tumblr_9032b9ed5faf2a9ed07b6a4ad7d567ab_ceab2745_75.webp" width="40" /> ㅤㅤ 
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/pixels/black%20pixel/bl45" width="40" /> ㅤㅤ
+  <img src="https://64.media.tumblr.com/7f42becafa837f13365b62b538781a7b/e7d74065fc3a0376-e6/s75x75_c1/295e218b0604981204cdf6b794fe007f4d09a051.gif"  width= "40">
+</p>
+
 </details>
 </div>
 
