@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/7LLZQf9C/Untitled15-20240903153629.png" height="" width="900">
 </p> 
 
-  <img align="left" width="400" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
+  <img align="left" width="250" src="https://i.ibb.co/rfthcdp7/Untitled235-20260923203937.png">
 </a>
 
 plane div
@@ -44,7 +44,7 @@ VERY BLUNT AND ROUGH VOCABULARYㅤㅤFREQUENT WEIRD/FLIRT/EXPLICIT JOKESㅤㅤAM
 <p align="center">
   <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/04/tumblr_989e97a17d7b6979e2b35561639ea5d4_a04832c6_75.webp" width= "40"> ㅤㅤ
   <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/24/h1za3h.gif" width="40" /> ㅤㅤ 
-  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/pixels/red%20pixel/red133" width="40" /> ㅤㅤ
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/23/TDWYWUN7DE4XK5ZNFEPRMERIXRVTVW7N.gif" width="40" /> ㅤㅤ
   <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/09/q94ohm.gif"  width= "40">
 </p>
 
@@ -77,6 +77,7 @@ C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCOVERUF + DO NOT SEND FRIEND/PARTY 
 plane div 
 
 <br clear="left" />
+ㅤㅤ
 
 ```ㅤㅤ
 ㅤㅤ
