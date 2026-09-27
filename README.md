@@ -44,7 +44,7 @@ VERY BLUNT AND ROUGH VOCABULARYㅤㅤFREQUENT WEIRD/FLIRT/EXPLICIT JOKESㅤㅤAM
 <p align="center">
   <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/04/tumblr_989e97a17d7b6979e2b35561639ea5d4_a04832c6_75.webp" width= "40"> ㅤㅤ
   <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/24/h1za3h.gif" width="40" /> ㅤㅤ 
-  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/23/TDWYWUN7DE4XK5ZNFEPRMERIXRVTVW7N.gif" width="40" /> ㅤㅤ
+  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/t8wioq.png" width="40" /> ㅤㅤ
   <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/09/q94ohm.gif"  width= "40">
 </p>
 
