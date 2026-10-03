@@ -5,7 +5,8 @@
   <img align="left" width="250" src="https://i.ibb.co/rfthcdp7/Untitled235-20260923203937.png">
 </a>
 
-plane div
+ <img align="center" width="500" src="https://cdn.jumpshare.com/preview/vunoBJyf4pcYoOS5tf0XfjN12zAg5xkEr_zMinEHBxnIYwtDSQJEt9fAOhe-jRzVR0lR4FICF4LOPvGef-LDIo2IMI9s50zJa-nQi_6gRUk-4h3unfsVFOq8J">
+</a>
 
 <div align="center">
 <details>
@@ -74,7 +75,8 @@ C/H ARE ALWAYS WELCOME AND ENCOURAGEDㅤㅤDNCOVERUF + DO NOT SEND FRIEND/PARTY 
 </details>
 </div>
 
-plane div 
+<img align="center" width="500" src="https://cdn.jumpshare.com/preview/vunoBJyf4pcYoOS5tf0XfjN12zAg5xkEr_zMinEHBxnIYwtDSQJEt9fAOhe-jRzVR0lR4FICF4LOPvGef-LDIo2IMI9s50zJa-nQi_6gRUk-4h3unfsVFOq8J">
+</a> 
 
 <br clear="left" />
 ㅤㅤ
